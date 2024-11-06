@@ -14,3 +14,7 @@ instagram report bot, telegram report bot, tiktok report bot, facebook report bo
 <p align="center">
 [𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/wBZwZ
 </p>
+
+<p align="center">
+Web: https://reportbot.org
+</p>
