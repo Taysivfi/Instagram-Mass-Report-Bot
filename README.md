@@ -8,7 +8,8 @@ instagram report bot, telegram report bot, tiktok report bot, facebook report bo
 [𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/wBZwZ
 </p>
 
-↓ ɢᴇᴛ ɪɴꜱᴛᴀɴᴛ ʀᴇᴠᴇɴɢᴇ ᴏɴ ᴛʜᴇ ᴘᴇᴏᴘʟᴇ ʏᴏᴜ ʜᴀᴛᴇ​ ↓
+<p align="center">↓ ɢᴇᴛ ɪɴꜱᴛᴀɴᴛ ʀᴇᴠᴇɴɢᴇ ᴏɴ ᴛʜᴇ ᴘᴇᴏᴘʟᴇ ʏᴏᴜ ʜᴀᴛᴇ​ ↓
+</p>
 
 <p align="center">
 [𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/wBZwZ
